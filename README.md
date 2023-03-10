@@ -1,2 +1,2 @@
-# India-News
-A daily news from indua to read
+# Information In Advance
+7th Class Information Coming Before Announced In This Website
