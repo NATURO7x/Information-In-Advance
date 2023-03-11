@@ -1,2 +1,3 @@
-# Information In Advance
-7th Class Information Coming Before Announced In This Website
+# Information In Advanced
+M.A.G.S.S.S 7th Class Information In advanced by neelash(nitin) 
+
